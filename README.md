@@ -18,3 +18,22 @@ https://mega.nz/file/a3JEDAAI#CBBJaX-JnjfSgVOoldpG1ip5wtd-PH0HzleE9F-DWjs
 
 https://s17.picofile.com/file/8425925984/server.rar.html
 اینم فول فیکسه
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+گیممود ترول https://www.mediafire.com/file/azd7lircoymz79e/trolllastv.rar/file فیکس اسکین شاپ و کارشاپ فیکش بن کیک باک همین دو تا باگو داره
