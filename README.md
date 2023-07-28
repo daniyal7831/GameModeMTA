@@ -29,6 +29,10 @@ https://community.multitheftauto.com/index.php?p=resources&s=details&id=3870
 
 
 
+https://s29.picofile.com/file/8465631542/BlackSnowMTA.zip.html         سرور عالی که باید راه اندازی شه...!
+
+
+
 
 https://www.mediafire.com/file/9gg5i3frt23lv76/NoiseRoleplay.rar/file       نویز رول پلی
 
