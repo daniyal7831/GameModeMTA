@@ -24,7 +24,7 @@ https://mega.nz/file/kwpWwLbT#6XrOibtGtQmOC30B4KJLGa9NWmoVLqCXrDqI85O32-k لاس
 
 
 
-https://s25.picofile.com/file/8452195334/FearZone.rar.html خود فیرزون و پسوردش @KhoodeeAli
+https://s24.picofile.com/file/8452262450/Pub_by_KhoodeeAli.rar.html خود فیرزون و پسوردش @KhoodeeAli
 
 
 ...
