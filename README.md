@@ -4,6 +4,12 @@ https://s20.picofile.com/file/8446984400/Khan_MTA.rar.html
 http://download1638.mediafire.com/ycxpa9kaohsg/t12qr6l36khqyck/GuessMTA.rar
 https://mega.nz/file/kYZljYSC#CJkTVjzifnmHS1734vyIkl4NUatT2Mq90JW8okx3i8s
 
+
+...
+
+
+https://mega.nz/file/nnpRyCpS#mgvLV7Yg543Ak2GZNNCxoSAWeL70QPwVkM_HrSSicGs skin
+
 ...
 
 https://biaupload.com/do.php?filename=org-579e5cd4c41f1.zip   dealership yejooraee carshop
