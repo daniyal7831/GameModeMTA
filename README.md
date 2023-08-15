@@ -13,6 +13,20 @@ https://biaupload.com/do.php?filename=org-579e5cd4c41f1.zip   dealership yejoora
 https://mega.nz/file/K8VHWDiB#IXwofBrz0jBG6Zzspa7T2BQeEpZLh4b7ro8PnBsDZnY
 
 
+
+...
+
+
+https://mega.nz/file/kwpWwLbT#6XrOibtGtQmOC30B4KJLGa9NWmoVLqCXrDqI85O32-k لاست که باید با نیم فیرزون ران شه
+
+
+...
+
+
+
+https://s25.picofile.com/file/8452195334/FearZone.rar.html خود فیرزون و پسوردش @KhoodeeAli
+
+
 ...
 
 https://mega.nz/file/5dJDVCbK#kShxXnvjqG4o7IGQxY4hFfGROwTHYh_coOVBZSfJYJg  ایران استار
