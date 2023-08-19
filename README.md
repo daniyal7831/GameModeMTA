@@ -8,6 +8,18 @@ https://mega.nz/file/kYZljYSC#CJkTVjzifnmHS1734vyIkl4NUatT2Mq90JW8okx3i8s
 ...
 
 
+
+
+
+
+
+=======================
+Part 1 : https://s27.picofile.com/file/8460932450/gm_sarzaminfile_49857622_part1.rar.html
+=======================
+Part 2 : https://s27.picofile.com/file/8460932468/gm_sarzaminfile_49857622_part2.rar.html
+=======================
+
+
 https://mega.nz/file/nnpRyCpS#mgvLV7Yg543Ak2GZNNCxoSAWeL70QPwVkM_HrSSicGs skin
 
 ...
