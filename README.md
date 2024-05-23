@@ -1,10 +1,11 @@
+//KhanMta resources
 https://s20.picofile.com/file/8446984400/Khan_MTA.rar.html
+;
 http://download1638.mediafire.com/ycxpa9kaohsg/t12qr6l36khqyck/GuessMTA.rar
 https://mega.nz/file/kYZljYSC#CJkTVjzifnmHS1734vyIkl4NUatT2Mq90JW8okx3i8s
 
 
-... Ghost City ...
-
+Ghost City :
 https://mega.nz/file/EVolDKxR#qXeENQFnAVY0dG8VTO1_96HAZRQpNLq2Hs25V1ylBLI
 
 ...
